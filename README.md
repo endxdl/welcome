@@ -1,9 +1,4 @@
-<div align="center"><img src="https://gifs4crds.carrd.co/assets/images/image17.gif?vca07fc73a"    width="150"/><img src="https://gifs4crds.carrd.co/assets/images/image17.gif?vca07fc73a"    width="200"/><img src="https://gifs4crds.carrd.co/assets/images/image17.gif?vca07fc73a"    width="150"/>
-<div align="center"><img src="https://gifs4crds.carrd.co/assets/images/gallery03/8d01c2e8.gif?vca07fc73a    width="250"/>
-<div align="center"><img src="https://gifs4crds.carrd.co/assets/images/image17.gif?vca07fc73a"    width="150"/><img src="https://gifs4crds.carrd.co/assets/images/image17.gif?vca07fc73a"    width="200"/><img src="https://gifs4crds.carrd.co/assets/images/image17.gif?vca07fc73a"    width="150"/>
-<div align="center"> Tbh, I want friends.
-<img src="https://xyz.crd.co/assets/images/gallery01/566fe11e.gif?v=4ca63763"  width="20"/> <div align> BUT- I am a person w BAD socialization & am an introvert. Although I don’t mind sitting in an embrace w a person, in complete silence.
-<div align="left"> If u want to be friends w/ me, I don't mind! <img src="https://xyz.crd.co/assets/images/gallery18/c0859ee8.gif?v=4ca63763"  width="20"/> I'm not a "serious person", as I look from the outside! xр 
-<div align="center"><img src="https://xyz.crd.co/assets/images/gallery20/382a73a1.gif?v=4ca63763"   width="200"/>
-<div align="center"><img src="https://xyz.crd.co/assets/images/gallery11/842a5f62.gif?v=4ca63763"   width="20"/> Have a nice day! <img src="https://xyz.crd.co/assets/images/gallery13/d09c73bf.gif?v=4ca63763  width="20"/>
-<div align="center"><img src="https://gifs4crds.carrd.co/assets/images/image17.gif?vca07fc73a"    width="150"/><img src="https://gifs4crds.carrd.co/assets/images/image17.gif?vca07fc73a"    width="200"/><img src="https://gifs4crds.carrd.co/assets/images/image17.gif?vca07fc73a"    width="150"/>
+<div align="center"><img src="https://xyz.crd.co/assets/images/gallery16/28f5033c.png?v=c2c0b802"    width="500"/>
+<p align="center">
+<img src="https://files.catbox.moe/89qkum.png"    width="500"/>
+</p>
